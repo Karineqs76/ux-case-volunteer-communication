@@ -108,7 +108,7 @@ Após identificar a causa raiz, possíveis ações incluem:
 A explicação completa do raciocínio está disponível no vídeo abaixo:
 
 🎥 **Vídeo da apresentação**  
-[(Clique aqui para acessar)](https://drive.google.com/file/d/1dvAbi4MXXOkwg04INocoAqNN2FLgBzU9/view?usp=drivesdk)
+[(Clique aqui para acessar)](https://drive.google.com/file/d/1gY0XwLih8dYX0EPf5TTnRmXgoSQ09lus/view?usp=drivesdk).
 
 ---
 
